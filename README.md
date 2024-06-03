@@ -7,4 +7,4 @@
 - Você pode entrar em contato comigo pelo
 vitorfeernandes1456@gmail.com
 
-()[https://tenor.com/pt-BR/view/ok-okay-got-gotcha-alright-gif-20508966]
+![](https://tenor.com/pt-BR/view/ok-okay-got-gotcha-alright-gif-20508966)
